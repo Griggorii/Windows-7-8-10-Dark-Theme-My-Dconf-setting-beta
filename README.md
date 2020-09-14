@@ -7,4 +7,4 @@ Install example mig file https://youtu.be/ZE1fqFM16QE
 
 Support my channel technology youtube
 
-Job contact collobration: Griggorii@gmail.com
+Job contact collaboration: Griggorii@gmail.com
