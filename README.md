@@ -18,4 +18,4 @@ Windows 10
 https://youtu.be/i5JN0uDE4Ww
 
 
-https://blog.techygeekshome.info/wpdm-package/windows-easy-transfer-for-windows-10/
+Вщцтдщфв Windows Easy Transfer: https://blog.techygeekshome.info/wpdm-package/windows-easy-transfer-for-windows-10/
