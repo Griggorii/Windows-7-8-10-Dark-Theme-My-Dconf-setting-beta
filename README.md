@@ -4,6 +4,8 @@ theme , windows 2.0 , css , gtk , parody , by griggorii patent author
 
 Install example mig file https://youtu.be/ZE1fqFM16QE
 
+Windows 10 2004 X64 https://dropmefiles.com.ua/ru/xmD2z
+
 Support my channel technology youtube
 
 Job contact collaboration: Griggorii@gmail.com
